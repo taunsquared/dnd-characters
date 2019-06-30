@@ -4,7 +4,7 @@ Child of Lagertha "Beast Maiden" Skaggerrak and Lothbrok "The Farmer" Ragnarrohi
 
 ## Extended Family
 
-Aslaug: one of Lagertha's co-mates and Ironsides' half-mother. Aslaug has 4 children with Lothbrok. 
+Aslaug "Crow" Brundóttir: one of Lagertha's co-mates and Ironsides' half-mother. Aslaug has 4 children with Lothbrok. 
 
 ## Backstory
 
