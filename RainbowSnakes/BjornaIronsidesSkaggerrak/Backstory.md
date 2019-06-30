@@ -2,6 +2,8 @@
 
 Child of Lagertha "Beast Maiden" Skaggerrak and Lothbrok "The Farmer" Ragnarrohim, born and raised in the mountain tribe of Kattegat. The seat of power and major settlement of Kattegat is the stronghold of Isfjell. 
 
+Current age: 19
+
 ## Extended Family
 
 Aslaug "Crow" Brundóttir: one of Lagertha's co-mates and Ironsides' half-mother. Aslaug has 4 children with Lothbrok. 
